@@ -1,0 +1,1 @@
+This is Zeynep's first git project! Sooo exicited OMG :)  
